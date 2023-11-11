@@ -1,3 +1,0 @@
-# gegging.github.io
-
-balls
